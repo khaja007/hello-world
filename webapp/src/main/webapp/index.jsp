@@ -1,3 +1,3 @@
 <h1> Hello, Welcome to My Nandyal !!! </h1>
 <h1> koun banega crorepati
-      jai jaya  </h1>
+      jai ho khaja  </h1>
